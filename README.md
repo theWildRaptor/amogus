@@ -1,0 +1,2 @@
+# amogus
+CSGO AMOGUS BIND
